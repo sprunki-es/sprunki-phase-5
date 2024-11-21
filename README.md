@@ -17,7 +17,7 @@ Sprunki Phase 5 is a dynamic and engaging online game offering a unique gameplay
 
 ## What is Sprunki Phase 5? <a name="what-is-sprunki-phase-5"></a>
 
-Sprunki Phase 5 delivers a captivating gaming experience with its distinctive challenges and levels. While enjoying Sprunki Phase 5, consider exploring other related experiences such as [Sprunki Remix](https://sprunki.es/sprunki-remix), [Sprunki Para 9](https://sprunki.es/sprunki-para-9), or the intriguing [ESprunki Abgerny](https://esprunki.com/es/esprunki-abgerny).
+Sprunki Phase 5 delivers a captivating gaming experience with its distinctive challenges and levels. While enjoying Sprunki Phase 5, consider exploring other related experiences such as [Sprunki Remix](https://sprunki.es/sprunki-remix), [Sprunki Para 9](https://sprunki.es/sprunki-para-9), or the intriguing [ESprunki Abgerny](https://esprunki.com/esprunki-abgerny).
 
 
 ---
